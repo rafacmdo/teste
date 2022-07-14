@@ -1,4 +1,4 @@
-# Receita de Bolo de chocolatekkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
+# Receita de Bolo de chocolate
 
 ## Ingredientes para a massa:
 
